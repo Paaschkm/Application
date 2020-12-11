@@ -35,7 +35,7 @@ _**Minor:**_ Environmental Studies
 
 _**Graduation Date**_ May 2013
 
-_**Dean's List"**_ 2009-2012
+_**Dean's List:**_ 2009-2012
 
 ## Experience
 
@@ -49,14 +49,14 @@ Program**_
 
 **DEC 2017 – JULY 2020:**    _**Guckenheimer Sidebar Café – Catering Production Lead**_
 - Fostered positive relationships with customers daily
-- Assisted in monitoring and upholding food quality at catered events, public and private
+- Assisted in monitoring and upholding food quality at catered events: public and private
 - Prepared daily meals for customers
 - Monitored and maintained up to date catering orders
 - In charge of directing a small group of kitchen staff to facilitate catering production
 - Updated and programed the POS systems using DoubleBeam
 
 **MAY 2013 – DEC 2017:**     _**Danita Delimont Stock Photography – Assistant Office Manager**_
-- Specialized in keywording and title editing stock photography databases
+- Specialized in keywording and title editing the stock photography databases
 - Assisted in managing a database of >900,000 images from more than 350 photographers
 - Company representative at trade shows to market the company to new clientele
 - Edited and handled email marketing campaigns using Constant Contact
@@ -73,7 +73,7 @@ Program**_
 - Investigated the role of song divergence as an isolating barrier between Red Crossbill bird types
 - Refined methods of research integrity and repeatability
 - Gathered field data of Red Crossbill flight calls and songs
-- Performed in-depth analysis and comparison of two Crossbill Type songs
+- Performed in-depth analysis and comparison of song note shape and duration
 - Presented results to the local community
 
 **SEPT 2011 – DEC 2011:**     _**The School for Field Studies – Directed Researcher**_
@@ -85,7 +85,7 @@ Program**_
 ## Volunteer Experience
 **JAN 2018 – PRESENT:**     _**SEAF Art Festival – Food Coordinator Lead**_
 - Planned, prepped and provided meals for 36 lead staff, snacks for over 170 volunteers, and Hors d’oeuvres for around 80 VIP guests
-- Directly managed a small team of volunteers to facilitate food preparation
+- Directly manage a small team of volunteers to facilitate food preparation
 - Maintained a strict food budget and designed meals to achieve quantity as well as quality
 - Tracked costs to stay in budget over entire project timeline
 - Participated in event planning meetings with other lead staff to design event set up and set festival expectations
