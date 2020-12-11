@@ -69,21 +69,21 @@ Program**_
 - Perfected skills in experimental design setup, data gathering, and analysis
 - Recipient of the National Science Foundation Grant for undergraduates
 
-**May 2011 – Aug 2011:**     _**PLU Biology Department – Assistant Researcher**_
+**MAY 2011 – AUG 2011:**     _**PLU Biology Department – Assistant Researcher**_
 - Investigated the role of song divergence as an isolating barrier between Red Crossbill bird types
 - Refined methods of research integrity and repeatability
 - Gathered field data of Red Crossbill flight calls and songs
 - Performed in-depth analysis and comparison of two Crossbill Type songs
 - Presented results to the local community
 
-**Sept 2011 – Dec 2011:**     _**The School for Field Studies – Directed Researcher**_
+**SEPT 2011 – DEC 2011:**     _**The School for Field Studies – Directed Researcher**_
 - Designed and directed my own field research project
 - Managed a team of three to facilitate data collection and analysis on the invasive Cane Toad
 - Developed experimental design, hypothesis testing, and data gathering
 - Presented findings to the local community of Yungaburra
 
 ## Volunteer Experience
-**Jan 2018 – Present:**     _**SEAF Art Festival – Food Coordinator Lead**_
+**JAN 2018 – PRESENT:**     _**SEAF Art Festival – Food Coordinator Lead**_
 - Planned, prepped and provided meals for 36 lead staff, snacks for over 170 volunteers, and Hors d’oeuvres for around 80 VIP guests
 - Directly managed a small team of volunteers to facilitate food preparation
 - Maintained a strict food budget and designed meals to achieve quantity as well as quality
